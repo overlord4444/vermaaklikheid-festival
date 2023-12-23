@@ -1,2 +1,9 @@
-# vermaaklikheid-festival
-Horse Ridings  Discover the joy of horseback riding at the Vermaaklikheid Festival! Our Horse Ridings event offers a family-friendly experience from 9:00 am to 3:00 pm. Bring your kids for a 15-minute guided horse ride at just R50.00 per session, creating memorable moments for the whole family.
+# Vermaaklikheid Festival - Horse Ridings
+
+Welcome to the official webpage for the Vermaaklikheid Festival's Horse Ridings event! 🐎✨
+
+Explore the exciting world of horse riding for families and kids during our festival. Join us for a memorable experience as we lead kids on horseback rides, creating unforgettable moments for everyone.
+
+Feel free to discover event details, schedules, and captivating images showcasing the joyous atmosphere of our Horse Ridings activities.
+
+Come ride with us at the Vermaaklikheid Festival! 🌟
